@@ -1,2 +1,2 @@
 # SmarToYou
-no se :v
+Todos putos :v
